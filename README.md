@@ -16,17 +16,6 @@ https://www.youtube.com/watch?v=lvx6xOPyHng
 
 
 
-
-
-
-
-
-
-
-
-
-
-
 Mayores informes:
 https://www.lab21online.com/p/diseno-de-software-y-aplicaciones-la.html
 
